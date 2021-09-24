@@ -1,3 +1,4 @@
 # candy-plus-leak
 candy+ leak ezzzz!! by m1kan41
-& whaddzzから聞いたらrenameらしい
+& rename 0.1 only
+sry lol
